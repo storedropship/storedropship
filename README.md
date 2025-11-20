@@ -1,6 +1,6 @@
 👋 Hi, I'm the creator of storedropship.in
 
-🚀 Building Online Tools, Automation Templates & AI Image & Videos Bundles  
+🚀 Building Online Tools, Automation Templates, AI Image & Videos Bundles  
 🌐 Founder of storedropship.in  
 📦 Digital Products • WordPress Tools • HTML Tools • Affiliate Guides  
 🎯 Helping people create websites, tools, and automation systems
